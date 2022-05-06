@@ -1,2 +1,2 @@
-# eCommerce
-This is a repository for eCommerce
+# Graphic Designer
+I am a reliable, ambitious, out-of-the-box thinking and well-presented Graphic Designer specialized in creating clean and timeless Brand Identities that will take your company to the next level. If you are looking for someone willing to work along with you in order to create professional designs related NFT, UI UX, business card, flyer, brochure and other effective graphic content in highly unprofessional world that we live in, then I look forward to being a part of your team. I will provide you 100% satisfaction. Customer satisfaction is in my prime priorities.
